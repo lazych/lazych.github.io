@@ -1,1 +1,0 @@
-# lazych.github.io
